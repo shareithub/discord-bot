@@ -5,7 +5,7 @@
 
 ## YOUTUBE CHANNEL : [ SHARE IT HUB](https://youtube.com/@shareithub_com)
 
-## TUTORIAL VIDEO : 
+## TUTORIAL VIDEO : https://youtu.be/bodHaUgROlo
 
 ## FEATURE :
 
